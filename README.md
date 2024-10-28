@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @WomanInTech95
+- 👀 I’m interested in learning new things and spending time with my family
+- 🌱 I’m currently learning how to code, analytics and real estate investing
+- 💞️ I’m looking to collaborate on different projects
+- ⚡ Fun fact: I love to go paddleboarding
